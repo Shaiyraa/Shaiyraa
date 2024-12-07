@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+My name is Karina, but I also go by Shaiyra or Atea. My passions are equine color genetics and writing useless discord bots!
 <!--
 **Shaiyraa/Shaiyraa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
